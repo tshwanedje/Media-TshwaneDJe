@@ -1,0 +1,27 @@
+website side:
+	need to update the major v nubmers
+	need to update label to RC2
+	need to announce RC2
+
+new builds
+
+
+
+
+
+
+
+
+POSSIBLE WHATS NEW ETC VIDEO TOPICS
+
+Mention:
+Web spider
+
+Maybes:
+bulk search and replace
+
+
+[Filter (F5) / Stats] New Filter 'matching node action' "[Stats] Generate a list of matching node types and their counts". (An example usage of this might be e.g. in tlTerm, 'show term counts for all languages for a particular part of speech', or to help show breakdowns of created or last-modified terms/elements by a user, etc.)
+
+
+
