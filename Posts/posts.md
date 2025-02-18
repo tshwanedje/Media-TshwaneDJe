@@ -13,6 +13,16 @@ We'd love to hear more about your projects & how we can help & any questions & c
 
 2025-02:
 
+	2025-02-18:
+
+		🚀 Good news! We're currently working on big speed improvements to XML loading for the next TLex & tlTerm (& tlDatabase) release! ⚡ Plus, the update will bring support for the latest OpenAI AI models & more. Stay tuned!
+		/ 
+		🚀 Good news! We're currently working on big speed improvements to XML loading for the next TLex, tlTerm & tlDatabase release!
+
+		✅ The update will also bring support for the latest OpenAI AI models, & more
+
+		Stay tuned.
+
 -----------------------------------------------------------------
 
 ## Possible Posts
@@ -28,4 +38,66 @@ Our free online Swahili-English Dictionary is a valuable resource for many users
 Your support helps make knowledge accessible—Asante sana! 🙏
 
 
+
+💡 TLex Tip of the Day 💡
+
+Did you know? You can automatically generate cross-references in TLex! 🔄📖
+
+Simply use the "Smart References" feature to link related entries (e.g., synonyms, antonyms) without manually updating them—saving you time and effort! ⚡
+
+Try it today! More on TLex: https://tshwanedje.com/tlex/
+
+#Lexicography #Dictionaries #TLex #Productivity
+
+
+💡 TLex Tip of the Day 💡
+
+Got dictionary data in Excel or CSV? No need to start from scratch! 📊➡📖
+
+With TLex, you can import your data directly from CSV/Excel files, making it easy to migrate or update large datasets. Just use File > Import and follow the steps!
+
+Learn more: https://tshwanedje.com/tlex/
+
+
+
+
+💡 TLex Tip of the Day 💡
+
+Need expert help with TLex? We offer paid support and training to help you get the most out of our software! 🛠️📖
+
+✅ One-on-one training 🎓
+✅ Technical support 🔧
+✅ Custom solutions for your dictionary project ✨
+
+Contact us to learn more: https://tshwanedje.com/contact/
+
+
+DJ: Thanks, that looks great except I'm thinking maybe the conversion rate will be low as people must fill in a general contact form, wait for a response, maybe they forget about it or we don't reply quickly, or maybe they have other worries or anxieties that aren't allayed ... what if we make the link to the order form to already order support/training? But they may have worries like questions they first want answered ... 
+
+
+💡 TLex Tip of the Day 💡
+
+Need help with TLex? We offer paid support and training to help you get the most out of your dictionary projects! 🛠️📖
+
+✅ Personalized support
+✅ Expert training sessions
+✅ Get answers to your TLex questions
+
+Contact us to learn more: https://tshwanedje.com/contact/
+
+
+
+
+💡 TLex Tip of the Day 💡
+
+Need help with TLex? We offer paid support and training to help you master the software! 🛠️📖
+
+✅ Get expert guidance
+✅ One-on-one or team training
+✅ Order instantly or contact us with questions
+
+🔹 Order here: [LINK TO ORDER FORM]
+❓ Have questions? Email us: [support@tshwanedje.com]
+
+#Lexicography #Dictionaries #TLex #Training
 
