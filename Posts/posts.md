@@ -23,6 +23,22 @@ We'd love to hear more about your projects & how we can help & any questions & c
 
 		Stay tuned.
 
+---
+⚠️ Important update: Our online shopping cart (MyCommerce/Digital River) has failed due to ongoing issues on their side. We're working on alternatives!  
+
+In the meantime, if you’d like to pay by credit card, please order via:  
+🔗 http://tshwanedje.com/store/  
+💳 Then pay via PayPal: https://www.paypal.com/paypalme/davidjoffe (use invoice number/email as reference).  
+
+Thanks for your patience! 😊
+
+⚠️Our shopping cart is offline due to issues MyCommerce side. We're working on alternatives
+
+For now, to pay by credit card, order via our form:
+🔗tshwanedje.com/store/
+💳Then pay via PayPal:
+paypal.com/paypalme/davidjoffe (use invoice number as reference)
+Thanks 4 your patience! 😊
 -----------------------------------------------------------------
 
 ## Possible Posts
