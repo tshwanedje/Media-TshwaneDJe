@@ -39,6 +39,20 @@ For now, to pay by credit card, order via our form:
 💳Then pay via PayPal:
 paypal.com/paypalme/davidjoffe (use invoice number as reference)
 Thanks 4 your patience! 😊
+
+		<!--font import 2025 tmp-->
+		<link rel="stylesheet" href="https://apple.com/wss/fonts?families=SF+Pro,v3|SF+Pro+Icons,v3" />
+<div style="border-radius: 0.4em; margin: 0.3em 3em; background-color: #6561bf; color: #fff; padding: 1.2em; text-align: left; font-size: 1.m; font-family: 'SF Pro Display', 'Inter', 'Poppins', 'Helvetica Neue', Arial, sans-serif; line-height: 1.4;">
+    ⚠️ <b>Notice [Feb 2025]</b>: Our shopping cart is currently offline due to issues on MyCommerce's side.  
+    We're working on alternatives! In the meantime, to pay by credit card:  
+    <br> 1️⃣ <a href="http://tshwanedje.com/store/" style="color: #ffdd57; text-decoration: underline; font-weight: 600;">Place your order using our form</a>  
+    <br> 2️⃣ 💳 <a href="https://www.paypal.com/paypalme/davidjoffe" style="color: #ffdd57; text-decoration: underline; font-weight: 600;">Then pay via PayPal here</a> 
+    (Use your invoice number or email as reference).  
+    <br>Thank you for your patience! 😊
+</div>
+<!-- Font Import -->
+<link href="https://fonts.googleapis.com/css2?family=Inter:wght@400;600&family=Poppins:wght@400;600&display=swap" rel="stylesheet">
+
 -----------------------------------------------------------------
 
 ## Possible Posts
