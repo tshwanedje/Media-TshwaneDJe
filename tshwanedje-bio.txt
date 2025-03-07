@@ -1,5 +1,5 @@
 
-LinkedIn:
+LinkedIn bio:
 
 Software Development and Consulting, with a focus on language-related software. Translation, editing, proof-reading, localization.
 
@@ -10,3 +10,16 @@ We believe AI integration should serve to enhance human production, not replace 
 Customers include Oxford University Press, Pearson, Longman, Macmillan, Van Dale, Le Robert, the Spanish Royal National Academy of Medicine, Grupo Clarín (Argentina), the Welsh Language Board, the Department of Justice (Canada), the Malaysian Institute of Language and Literature, the Institute for Dutch Lexicology (Netherlands), and more.
 
 The company has achieved continual growth through a strict focus on professionalism, world-class quality, and delivering a solid return on investment to customers
+
+## Tagline:
+
+LinkedIn:
+Leading AI-enhanced Language Editing & Publishing Software
+Aiding education via better dictionaries & terminology
+
+Add: WebDev?
+
+Twitter/X:
+	TLex Software 🌐💬	@tshwanedje
+	🚀Leading AI-integrated Editing & Publishing Software for Lexicography, Terminology, more
+	➡️Improving dictionaries/terminology, education & cultural bridges
