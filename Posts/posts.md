@@ -1,5 +1,203 @@
 
 
+
+
+
+
+
+
+
+
+
+-----------------------------------------------------------------
+PAYFAST-RELATED MAR 2025:
+
+BIO:
+@tshwanedje TLex Software 🌐💬
+🚀Leading AI-integrated Editing & Publishing Software for Lexicography, Terminology, more
+➡️Improving dictionaries/terminology, education & cultural bridges 
+
+	d_joffe bio:
+		Software Engineer
+		Cofounder 
+		@TshwaneDJe
+		HLT
+		Created TLex,tlTerm…
+		C++ GameDev VR
+		Art:Pro-revival of tradition of beauty&skill
+		Edu. dictionaries
+		Reason
+		AI
+		Aging
+
+@tshwanedje
+🆕New option to book & pay for HOURS for per-hour services like TLex/tlTerm Training, Technical Support, or your own custom needs we can quote for
+Follow the link to pay & book now!💳Contact us & list desired services you booked & paid for, eg:
+16 hrs TLex Training
+8 hrs Support
+	@d_joffe
+	🆕For my per-hour services like software development, & 
+	@tshwanedje
+	services (Training, Technical Support) you can now buy & book hours online! 💳Pay even by card or other methods
+	Contact me to quote on work you need
+	Book here & I'll prioritize your work!
+	https://djoffe.com/services/
+		This uses Payfast (for 'safe & secure online payments')💳
+
+		🛒Book my hours now for services like:
+		➡️Remote TLex/tlTerm training
+		➡️Technical Support
+		➡️Customization (project-specific fields, or new software features for a project's needs)
+		➡️Data conversion (Need help getting data into TLex/tlTerm? Let me quote to assist, then book my time!)
+
+		These help you get more value from the software, & help us support TLex development
+
+		Note adding new features to TLex can be anything from a few hours work, to days or months!  Let us know your ideas for new features & we can estimate hours required
+
+		Payfast supports many payment methods, including instant EFT in SA
+
+
+============================== LINKEDIN d_joffe
+🆕Good news: For my per-hour services like software development, and our TshwaneDJe Software per-hour services that I do (such as Training, Technical Support and more) you can now buy & book HOURS online!
+
+
+
+💳Pay by card, or many other methods
+
+
+
+Contact me to quote on any custom work you need.
+
+Book here & I'll prioritize your work!
+
+
+
+🛒You can book my hours now for services including:
+
+➡️Remote TLex/tlTerm training
+
+➡️Technical Support
+
+➡️Customization (project-specific fields, or new software features for a project's needs)
+
+➡️Data conversion (Need help getting data into TLex/tlTerm? Let me quote to assist, then book my time!)
+
+➡️Custom software development
+
+➡️Website development or online publishing
+
+➡️Game development
+
+➡️AI integration
+
+➡️Sponsoring costs? 
+
+& more
+
+
+
+I can do the work or training remotely, via Zoom, Teams, AnyDesk, WhatsApp, Skype, VNC, Remote Desktop, and many other online collaboration tools (with screen sharing, where possible).
+
+
+
+For TRAINING, how many hours should you book? See the link below for TRAINING DURATION Guidelines.
+
+
+
+Payments are handled by Payfast (for 'safe and secure online payments'), which also supports instant EFT & many more payment methods. You can also pay to our PayPal (linked below), or by bank transfer to our EUR, US$ or Rand accounts.
+
+
+============================== LINKEDIN tshwanedje
+We have a new option available to book & pay for HOURS for our per-hour services like TLex/tlTerm Training, Technical Support, customization, or your own custom needs we can quote for.
+
+
+
+Follow the link to pay & book now!
+
+Contact us and list the desired services you booked & paid for, for example:
+
+➡️ 16 hours (2 days) TLex/tlTerm Training
+
+➡️ 4 hours Technical Support
+
+➡️ 12 hours TLex Customization (new feature for our project)   
+
+
+
+💳 Pay by credit card, instant EFT or many other methods. Payments are handled by Payfast ('for safe and secure online payments').
+
+
+
+🛒Book hours now for services including:
+
+➡️Remote TLex/tlTerm training
+
+➡️Technical Support
+
+➡️Customization (project-specific fields, or new features for a project's needs)
+
+➡️Data conversion (Need help getting data into TLex/tlTerm? Let us quote to assist, then book the work.)
+
+➡️Custom development
+
+➡️Online publishing
+
+
+
+These help you get more value from the software, & help us support TLex development.
+
+
+
+Work and training can be done remotely, via Zoom, Teams, AnyDesk, WhatsApp (video, voice, or chat), or many other online collaboration tools.
+
+
+
+You can currently book and 'Pay Now' for hours for applicable services at the following link (contact us and list the desired work you're booking). (Note we are also busy working on integrating other new payment options, also for our software) - book here & we'll prioritize the work:
+
+
+
+https://lnkd.in/dhr-BeBF
+
+-----------------------------------------------------------------
+
+
+
+
+-----------------------------------------------------------------
+FACEBOOK thwanedje:
+TshwaneDJe Software and Translation
+Published by David Joffe
+🆕Good news: For our per-hour services like Software Training, Technical Support, customization, data conversion, and more, you can now buy & book HOURS online!
+💳Pay by credit card, or many other methods. Pay now to book instantly
+Contact us to quote on any custom work you need.
+Book and pay with this & we'll prioritize your work!
+🛒You can book HOURS for services including:
+➡️Remote TLex/tlTerm training
+➡️Technical Support
+➡️Customization (setting up project-specific fields, or new software features for a project's needs)
+➡️Data conversion (Need help getting data into TLex/tlTerm? Let us quote to assist, then book the hours and we can help!)
+➡️Custom software development
+➡️Website development or online publishing
+➡️General software development work
+➡️AI integration
+& more
+TRAINING: TLex/tlTerm Training Duration Guideline (depending on your budget and needs):
+* 4 to 8 hours training is good for briefly covering 'the core basics' of TLex/tlTerm as a starter training suggested for most clients with a modest training budget
+* 1 to 2 hours training "if that's all you can budget", or just need to cover a few specific requested topics
+* 3-day training (24 hours = 3 days x 8 hours) (or 2 to 4 days) is the recommended good general training option, for organizations/teams (with a decent training budget), for good coverage of topics and to get the most value and "return on investment" from the software. This option also allows time for us to hear feedback and questions from users during training, to analyze data and other project-specific requirements, and start assisting with some TLex/tlTerm customization, such as setting up project-specific fields/languages/styles and lists
+Payments are handled by Payfast, for "safe and secure online payments", also supporting instant EFT in South Africa & many more payment methods. You can also pay by PayPal (using the link in the page below), or bank transfer to our US$, EUR or Rand accounts.
+
+https://djoffe.com/services/
+-----------------------------------------------------------------
+
+
+
+
+
+
+
+
+
 -----------------------------------------------------------------
 
 Posted 7 Feb 2025:
