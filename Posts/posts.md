@@ -159,7 +159,154 @@ You can currently book and 'Pay Now' for hours for applicable services at the fo
 https://lnkd.in/dhr-BeBF
 
 -----------------------------------------------------------------
+LINKEDIN:
+You can purchase professional training from us for
 
+✅TLex Lexicography Software
+
+✅tlTerm Terminology Software
+
+✅tlCorpus
+
+✅tlDatabase
+
+as you need🧑‍🎓
+
+
+
+Book anything from an hour, to days of training! Whatever suits your needs and budget.
+
+
+
+We have presented Software Training internationally for many users of TLex/tlTerm, including Oxford University Press, EC Department of Education (2024), PanSALB National Lexicography Units, university departments, the Malaysian Institute of Languages and Literature (DBP - Dewan Bahasa dan Pustaka), and more. (Training is presently available in English.)
+
+
+
+If you book enough hours for it, we can also (if desired) use some of the time to help with tasks such as initial project customization (e.g. studying your requirements and start helping with aspects like setting up required fields for your projects, or styles.)
+
+
+
+Questions? Contact us. Book now:
+
+
+
+https://tshwanedje.com/store/
+
+
+
+You can also subscribe to YouTube channel below, which contains a number of tutorial videos (for TLex, tlTerm, tlCorpus, and more) - don't forget to hit like on our videos! Thank you
+
+
+
+https://www.youtube.com/@tshwanedje
+-------------------
+
+X: You can also purchase professional training from us, for TLex Lexicography Software, tlTerm Terminology Software, tlCorpus, tlDatabase - as you need🧑‍🎓
+
+Book anything from 1hr to days of training - whatever suits your needs & budget!
+
+Questions? Contact us
+
+tshwanedje.com/store/
+-----
+You can also purchase professional training from us for
+✅TLex Lexicography Software
+✅tlTerm Terminology Software
+✅tlCorpus
+✅tlDatabase
+As you need🧑‍🎓
+
+Book anything from 1hr to days of training - whatever suits your needs & budget!
+
+Questions? Contact us
+
+tshwanedje.com/store/
+
+You can also purchase professional training from us for
+✅TLex Lexicography Software
+✅tlTerm Terminology Software
+✅tlCorpus, tlDatabase
+as you need🧑‍🎓
+
+Book anything from 1hr to days of training! Whatever suits your needs & budget
+
+Questions? Contact us
+
+tshwanedje.com/store/
+-------------------------------------
+Posted Facebook 13 March 2025: https://web.facebook.com/tshwanedje/posts/984254650463991
+
+
+Here is a link to our YouTube channel, which contains a number of tutorial videos, and more - please subscribe, and don't forget to hit like on our videos!
+
+For proper software training for our software, you can also purchase training from us - anything from an hour to days of training - whatever suits your requirements and budget! You can book now:
+https://tshwanedje.com/store/
+
+We can do training remotely via Zoom, Teams, Skype, WhatsApp - many different collaboration/presentation tools, for teams or individuals.
+
+https://www.youtube.com/@tshwanedje
+
+-------------------------------------
+X:You can also subscribe to our YouTube channel, which contains a number of tutorial videos (for TLex, tlTerm, tlCorpus, and more) - don't forget to hit like on our videos! Thank you
+
+-----------------------------------------------------------------
+@TshwaneDJe
+
+🆕🛒 We're busy adding more new payment options, this time for <b>quick and easy purchasing of our software</b>, like TLex and tlTerm!
+
+You can also pay by credit card💳 again, and get your software license details quickly.
+
+You can try it out here, for purchasing TLex Suite:
+
+➡️ https://tshwanedje.com/tshwanelex/#buy
+
+Or here, to purchase tlTerm Terminology Software:
+
+➡️ https://tshwanedje.com/terminology/#buy
+
+Please give it a try! Send us feedback.
+
+License Types:
+➡️ Full or Commercial/Government Licenses - for use by commercial or government organization
+➡️ Personal Licenses - for individual use, not organizations
+➡️ Academic or Endangered-Language License - for only academic use or work on 'small and endangered languages'
+➡️ Student Licenses - strictly only for student/classroom educational and learning use
+
+Payfast is used for safe & secure online payments.
+
+=================== SHORTENED FOR X:
+🆕🛒We're adding more new payment options, for quick & easy purchasing of our software!
+
+You can try it here for purchasing TLex Suite:
+➡️https://tshwanedje.com/tshwanelex/#buy
+
+Or to purchase tlTerm here
+➡️https://tshwanedje.com/terminology/#buy
+
+Pay by credit card💳& get your software license details quickly
+====================== FACEBOOK:
+🆕🛒 We're now adding more new payment options, for quick and easy purchasing of our software!
+
+You can pay by credit card💳 again, and get your software license details quickly
+
+You can try it out here, for purchasing TLex Suite:
+
+➡️ https://tshwanedje.com/tshwanelex/#buy
+
+Or here, to purchase tlTerm Terminology Software:
+
+➡️ https://tshwanedje.com/terminology/#buy
+
+Please give it a try! Send us your feedback & experiences, and report any problems to us.
+
+License Types:
+➡️ Full or Commercial/Government Licenses - for use by commercial or government organization
+➡️ Personal Licenses - for individual use, not organizations
+➡️ Academic or Endangered-Language License - for only academic use or work on 'small and endangered languages'
+➡️ Student Licenses - strictly only for student/classroom educational and learning use
+
+Payments are handled by Payfast for safe & secure online payments
+-----------------------------------------------------------------
 
 
 
