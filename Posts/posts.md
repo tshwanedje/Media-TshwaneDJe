@@ -348,7 +348,11 @@ Want a new feature added to TLex, tlTerm, tlCorpus, tlEditor/tlDatabase etc. for
 
 I'm happy to do this as long as you can just pay my hours. Small feature changes may require only a few hours sometimes - ask me to estimate.
 -----------------------------------------------------------------
+Also, want a new feature added for your project, or existing feature changed or extended, or any other customizations?
 
+We gladly do this, provided we can cover the development costs - contact us & tell us what you have in mind & we can estimate
+
+https://x.com/d_joffe/status/1900302906907062754
 
 
 
