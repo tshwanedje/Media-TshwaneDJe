@@ -341,6 +341,15 @@ https://djoffe.com/services/
 
 
 
+-----------------------------------------------------------------
+David Joffe ⌨🖌🎨
+@d_joffe
+Want a new feature added to TLex, tlTerm, tlCorpus, tlEditor/tlDatabase etc. for your project (or existing feature changed or extended)?
+
+I'm happy to do this as long as you can just pay my hours. Small feature changes may require only a few hours sometimes - ask me to estimate.
+-----------------------------------------------------------------
+
+
 
 
 
